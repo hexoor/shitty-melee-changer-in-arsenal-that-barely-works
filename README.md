@@ -1,7 +1,6 @@
-so uh this is a shitty roblox arsenal melee changer
+shit roblox arsenal melee changer
 
-
-my discord is uyx.official
+if you want to change your melee after you have changed it once, you have to rejoin. yes, that's the reason why this script is so shit.
 
 
 
